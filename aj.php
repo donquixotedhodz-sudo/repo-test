@@ -1,0 +1,1 @@
+si aj ga beg sa lalaki tas may dinala kila josh na lalaki
